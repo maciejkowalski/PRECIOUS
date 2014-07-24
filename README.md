@@ -42,3 +42,11 @@ We're also kind of like puppies, in that human beings respond very well to posit
 
 ![a](http://i.imgur.com/tVbKMr5.jpg)
 
+If you want to train a puppy to sit, you don't tell him to not stand. You wouldn't scold him whenever he stood up. You'd just tell him to sit, and when he sits, you reward him. Change yourself the same way.
+
+
+####TL;DR:
+####1. Surround Yourself with People You Want to Be Like
+####2. Take Small Steps
+####3. Focus on What You Want
+####4. Reward Yourself for Making Small Changes
