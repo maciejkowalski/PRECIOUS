@@ -11,11 +11,13 @@ BJ Fogg, PhD is the Director of the Persuasive Tech Lab at Stanford University. 
 > Option C. Take baby steps
 
 **A. Have a Massive Teaching Moment**
+
 ![Alt text](http://i.imgur.com/IZkyTvs.png)
 
 Chances are if you've already had Option A you wouldn't be posting on Quora. In other words, let's not bet on it.
 
 **B. Surround Yourself with People You Want to Be Like**
+
 ![a](http://i.imgur.com/qyJbFSo.jpg)
 
 Think of Option B as using reverse peer pressure on yourself.
@@ -23,4 +25,5 @@ The Longevity Project, which studied over 1000 people from youth to death had th
 > The groups you associate with often determine the type of person you become. For people who want improved health, association with other healthy people is usually the strongest and most direct path of change.
 
 **C. Take Small Steps**
+
 ![a](http://i.imgur.com/KDtDDwW.jpg)
