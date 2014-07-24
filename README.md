@@ -16,7 +16,7 @@ BJ Fogg, PhD is the Director of the Persuasive Tech Lab at Stanford University. 
 
 Chances are if you've already had Option A you wouldn't be posting on Quora. In other words, let's not bet on it.
 
-**B. Surround Yourself with People You Want to Be Like**
+####B. Surround Yourself with People You Want to Be Like
 
 ![a](http://i.imgur.com/qyJbFSo.jpg)
 
@@ -24,6 +24,21 @@ Think of Option B as using reverse peer pressure on yourself.
 The Longevity Project, which studied over 1000 people from youth to death had this to say:
 > The groups you associate with often determine the type of person you become. For people who want improved health, association with other healthy people is usually the strongest and most direct path of change.
 
-**C. Take Small Steps**
+####C. Take Small Steps
 
 ![a](http://i.imgur.com/KDtDDwW.jpg)
+
+This is probably not what you want to hear in a question about radical change, but if having a massive change of heart moment or changing your social circle aren't options, then taking tiny steps has been proven to work.
+
+Google BJ Fogg and ‘Tiny Habits’ to learn more about how to create lasting change over time by doing small things.
+
+####Focus on What You Want and Get Rewarded for Making Change
+
+Research has also shown that focusing on what we want instead of what we don't want makes it more likely that we'll get it. Focusing on what you want also makes you more optimistic, and positivity actually increases productivity and increases your chances for success.
+
+**Your question focuses a lot on what you don't want, not what you do. Reverse that, get more clear on what you do want to happen, and focus more on that.**
+
+We're also kind of like puppies, in that human beings respond very well to positive reinforcement. When you want to make changes in your life, make sure you reward yourself when you actually do those changes, just like you'd train a puppy.
+
+![a](http://i.imgur.com/tVbKMr5.jpg)
+
